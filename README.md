@@ -7,6 +7,7 @@
 ✅ 3分钟极速开卡，全程中文指引
 
 🔧 五步极速订阅流程：
+
 1️⃣ 注册WildCard
 👉 点击直达：[WildCard官网](https://yeka.ai/i/9SH3OYCP)
 📱 +86手机号秒注册，用邀请码 9SH3OYCP 享开卡优惠
